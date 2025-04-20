@@ -1,8 +1,8 @@
-✦ Just a kid who use mods or forks from other mods to make life easier;
+• Just a kid who use mods or forks from other mods to make life easier;
 
-✦ I also work with android app development (i'm a newbie);
+• I also work with android app development (i'm a newbie);
 
-✦ I'm brazilian 🇧🇷.
+• I'm brazilian 🇧🇷.
 
 
 
